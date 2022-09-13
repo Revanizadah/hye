@@ -1,2 +1,2 @@
-islam itu indah
+islam itu indah:)
 jangan lupa sholat:)
